@@ -1,4 +1,4 @@
-### Hi 👋
+### Hola 👋
 
 Estoy buscando mi primer oportunidad en el mundo de la tecnología
 
